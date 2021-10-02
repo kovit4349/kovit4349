@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kovit4349
 - 👀 I’m interested in studing and exploring python
-- 🌱 I’m currently in 1st year of my graduation
+- 🌱 I’m currently in 2nd year of my graduation
 - 📫 How to reach me by my email address which is dongre9876@gmail.com
 
 <!---
