@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @kovit4349
 - 👀 I’m interested in exploring different programming languages.
 - 🌱 I’m currently in 3rd year of my graduation.
-- 📫 You can reach to me via my email Dongre9876@gmail.com or on my linkedin profile-www.linkedin.com/in/kovit4349
+- 📫 You can reach to me via my email dongre9876@gmail.com or on my linkedin profile-www.linkedin.com/in/kovit4349
